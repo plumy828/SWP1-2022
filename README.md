@@ -1,1 +1,2 @@
-20223138 정택
+20223138 Jeong Taek
+Kookmin Univ. SW
