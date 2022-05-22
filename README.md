@@ -1,2 +1,2 @@
-20223138 Jeong Taek
+20223138	Jeong Taek
 Kookmin Univ. SW
